@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with high-frequency dex market making bot Algorithm | rug-pull-detection + sandwich-attack-protection, the #1 dex market making bot. Includes
 
 
 
